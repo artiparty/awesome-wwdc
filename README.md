@@ -63,8 +63,11 @@ The Keynote is the most popular event of the whole week. If you want to get in c
 ### Eat
  - ⌘
 
+### Coffee
+ - [Sightglass Coffee](https://www.sightglasscoffee.com) – a coffee shop that Jack Dorsey invested in. Great vibe and people.
+
 ### Sleep 
- - ⌘
+ - [Saddle House](http://www.saddlehousesf.com) – you can contact [Artiom](mailto:hvoostik@gmail.com) for a direct intro to the owner (they are not approving everybody to stay there so being referred can help).
 
 # Community
 
